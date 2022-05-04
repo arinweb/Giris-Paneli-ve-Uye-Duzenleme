@@ -1,0 +1,1 @@
+# Giri-Paneli-Ve-Profil-D-zenleme
