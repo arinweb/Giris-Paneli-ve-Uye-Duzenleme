@@ -1,1 +1,1 @@
-# Giri-Paneli-Ve-Profil-D-zenleme
+# Giriş Paneli Ve Profil Düzenleme
